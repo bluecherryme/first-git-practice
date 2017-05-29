@@ -1,1 +1,1 @@
-Johanna Staedel
+Johanna Staedel aka Jo
